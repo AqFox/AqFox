@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AqFox
-- 👀 I’m interested in graphic design, web development, plugin development for games, and a whole lot more
+- 👀 I’m interested in graphic design, web development, plugin development for games, CSS, HTML, JAVA, PYTHON, CRYPTO!!!!
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on anything interesting enough really
 - 📫 How to reach me - I'll come to you.
