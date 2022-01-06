@@ -2,7 +2,7 @@
 - 👀 I’m interested in graphic design, web development, plugin development for games, CSS, HTML, JAVA, PYTHON, CRYPTO!!!!
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on anything interesting enough really
-- 📫 How to reach me - I'll come to you.
+- 📫 How to reach me - So I live on a deserted island so you cant really get to me....
 
 A little more about me:
 - I've worked for a company called 'Senior Studios' which is an Offcial Minecraft Partner as part of the development team, developing plugins, data packs, mods and so much more.
